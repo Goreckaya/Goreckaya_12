@@ -1,3 +1,12 @@
 # Goreckaya_12
 ![1](https://user-images.githubusercontent.com/99527352/174330239-c2d893be-117f-42d5-b383-52f9b96005c2.PNG)
-![2](https://user-images.githubusercontent.com/99527352/174330248-f450f880-52fd-42b4-addc-a03034c41514.PNG)
+![22](https://user-images.githubusercontent.com/99527352/174330329-fd234460-1de8-41f2-8821-c8ae7ffae1a6.PNG)
+![33](https://user-images.githubusercontent.com/99527352/174330344-5fbc431d-ade0-4fc2-97ac-b1352f3bea99.PNG)
+![4](https://user-images.githubusercontent.com/99527352/174330355-0c44f79c-2dca-489e-98ef-c86aace79c73.PNG)
+![55](https://user-images.githubusercontent.com/99527352/174330362-ce5540dc-a602-4158-8308-46725a5155a2.PNG)
+![6](https://user-images.githubusercontent.com/99527352/174330367-3023899a-7aa9-4bc1-aa09-f7ef8f63271d.PNG)
+![7](https://user-images.githubusercontent.com/99527352/174330375-d41a2dd5-d723-4c07-9d28-f19ef8ea410d.PNG)
+![8](https://user-images.githubusercontent.com/99527352/174330383-7ca0201d-9cca-4c77-87b7-044b00418af3.PNG)
+![9](https://user-images.githubusercontent.com/99527352/174330391-30fa6336-cd21-4671-8c01-ce0fd8c5d771.PNG)
+![10](https://user-images.githubusercontent.com/99527352/174330397-1023b984-70b1-4330-9396-e05e0ad4a150.PNG)
+![11](https://user-images.githubusercontent.com/99527352/174330409-659b9d2c-0292-4c8b-b775-d523e42a0602.PNG)
